@@ -1,6 +1,6 @@
 👋 Hi, I’m @levigmartins,
 
-👀 I’m majoring in computer science @ufvbroficial and i love to learn more!!
+👀 I’m majoring in computer science @ufvbroficial and i'd love to learn more!!
 
 🌱 Feel free to look around my repositories or send a message, as i'm always looking for a opporunity to get better...
 
