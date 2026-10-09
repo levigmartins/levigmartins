@@ -4,7 +4,7 @@
 
 🌱 Feel free to look around my repositories or send a message, as i'm always looking for a opporunity to get better...
 
-📫 You can find me at levigmartins@gmail.com or @levi.gm (at Instagram)!!!
+📫 You can find me at levigmartins@gmail.com!!!
 
 🌎 data science, AI and web developing... 🌎
 
